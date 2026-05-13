@@ -1,1 +1,1 @@
-# MigOs.github.io
+# MigOs.github.io lol
